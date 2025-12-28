@@ -1,2 +1,1 @@
-A Blossoming Flower Website 
-- For Kezia
+flower for her
